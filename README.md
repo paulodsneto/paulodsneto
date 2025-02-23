@@ -1,1 +1,1 @@
-### Quer entrar em contato comigo? Me chame no [Linkedin](https://www.linkedin.com/in/paulodneto/) ✔️
+O maior escovador de bits do prédio que eu moro.
